@@ -1,0 +1,1 @@
+# latihan_responsi_124210049
